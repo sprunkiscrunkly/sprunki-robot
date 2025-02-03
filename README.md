@@ -6,6 +6,8 @@
 
 👉👉 Click to play，2nd Version: [Sprunki Robot](https://sprunkiscrunkly.com/sprunki-robot/ "Sprunki Robot")
 
+👉👉 Click to play，3rd Version: [Sprunki Robot](https://sprunkipyramixed.com/sprunki-robot/ "Sprunki Robot")
+
 Sprunki Robot - a futuristic musical creation platform where mechanical rhythms meet digital creativity! Create cyber-enhanced beats with robotic characters in this revolutionary tech-inspired musical experience.
 
 Sprunki Robot transforms traditional music creation with its unique robotic character system. Players orchestrate mesmerizing mechanical symphonies while experimenting with metallic sound combinations.
@@ -114,3 +116,4 @@ Dive into a futuristic musical experience! Master mechanical beats, create uniqu
 
 - [Play Sprunki Robot 1st Version Now - It's Free!](https://sprunksters.com/sprunki-robot/)
 - [Play Sprunki Robot 2nd Version Now - It's Free!](https://sprunkiscrunkly.com/sprunki-robot/)
+- [Play Sprunki Robot 3rd Version Now - It's Free!](https://sprunkipyramixed.com/sprunki-robot/)
